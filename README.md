@@ -1,2 +1,0 @@
-# Myself
-Intro
